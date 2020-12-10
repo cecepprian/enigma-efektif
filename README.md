@@ -1,0 +1,2 @@
+# enigma-efektif
+Income
